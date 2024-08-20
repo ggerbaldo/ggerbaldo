@@ -19,4 +19,5 @@ Aquí dejo otros canales donde puedes contactarme:
 ✉ Mail: guillermogerbaldo@gmail.com  
 💼 Linkedin: (https://www.linkedin.com/in/guillermo-gerbaldo-18a7144/)
 
-¡Gracias por visitar mi perfil! Si tienes alguna pregunta o te gustaría colaborar en algún proyecto, no dudes en contactarme. ✨
+¡Gracias por visitar mi perfil! 🚀   
+Si tienes alguna pregunta o te gustaría colaborar en algún proyecto, no dudes en contactarme! ✨
